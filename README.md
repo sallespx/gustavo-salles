@@ -13,4 +13,4 @@ gustavosalles3217@gmail.com
 @sallespx
 
 
-![](https://media.tenor.com/MCBkr6dWLkUAAAAM/corinthians-rodrigo-garro.gif)
+(https://media.tenor.com/MCBkr6dWLkUAAAAM/corinthians-rodrigo-garro.gif)
